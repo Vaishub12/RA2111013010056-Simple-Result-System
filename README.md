@@ -1,1 +1,0 @@
-# RA2111013010056-Simple-Result-System
